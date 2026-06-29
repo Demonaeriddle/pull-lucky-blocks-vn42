@@ -1,4 +1,4 @@
-#  
+#  pull lucky blocks elite Script is the best pull lucky blocks Script, featuring invisibility and auto-upgrade. Safe and powerful for all your needs.
 
 
 
